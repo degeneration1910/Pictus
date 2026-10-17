@@ -239,4 +239,4 @@ Pictus is offered as a **full free version** with all features and updates inclu
 Don't miss out on the chance to enhance your image viewing experience. **Download Pictus now and explore all its fantastic features!**
 
 ---
-**Last updated:** 2026-10-17 11:51:55 UTC
+**Last updated:** 2026-10-17 14:40:44 UTC
